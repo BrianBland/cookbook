@@ -1,16 +1,17 @@
 Peanut butter & Pilsner cookies
+-------------------------------
 
-1/3 + 1/6 (1/2) cup Reeses peanut butter chips
-2 tbsp butter
-2/3 cup granulated sugar
-1/3 cup brown sugar
-1/3 cup milk
-1 tsp vanilla
-1.5 cups spent pilsner malt (prepared and still wet)
-2 cups flour
-1 tsp baking soda
-1/2 tsp salt
-1/3 cup chocolate chips
++ 1/3 + 1/6 (1/2) cup Reeses peanut butter chips
++ 2 tbsp butter
++ 2/3 cup granulated sugar
++ 1/3 cup brown sugar
++ 1/3 cup milk
++ 1 tsp vanilla
++ 1.5 cups spent pilsner malt (prepared and still wet)
++ 2 cups flour
++ 1 tsp baking soda
++ 1/2 tsp salt
++ 1/3 cup chocolate chips
 
 Melt 1/3 cup peanut butter chips and butter together in microwave, 90 seconds
 
