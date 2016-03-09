@@ -11,9 +11,9 @@ Maitake Bacon Toast
 + 2 Tbsp Butter
 + Panko Breadcrumbs
 
-In a medium pan, cook bacon pieces over medium heat.
-Meanwhile, drizzle olive oil over mushrooms, sprinkling over garlic, black pepper, and chili powder
-Remove bacon from pan once crispy and sautee mushrooms in leftover bacon fat, 10 minutes.
-Spread butter over one side of each baguette, then toast in broiler or toaster oven.
-Add bacon back to pan with panko to absorb any leftover oil.
+In a medium pan, cook bacon pieces over medium heat.  
+Meanwhile, drizzle olive oil over mushrooms, sprinkling over garlic, black pepper, and chili powder.  
+Remove bacon from pan once crispy and sautee mushrooms in leftover bacon fat, 10 minutes.  
+Spread butter over one side of each baguette, then toast in broiler or toaster oven.  
+Add bacon back to pan with panko to absorb any leftover oil.  
 Serve mushroom and bacon mixture over toasted baguette slices.
